@@ -1,0 +1,1 @@
+# Palpites-Automaticos-para-a-Lotomania-Loteria
